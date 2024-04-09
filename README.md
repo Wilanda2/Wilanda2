@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on projects I can be useful to.
 - 📫 You can reach me via email: yolanda.lopezdelarica@gmail.com.
 - 😄 Pronouns: ella/she/her
+- 🙊 I speak Spanish (native), English (fluent), and French (communication).
 - ⚡ Fun fact: I know a lot of random data about animals. For example, did you know that dolphins sleep with half their brain awake?
 
 <!---
